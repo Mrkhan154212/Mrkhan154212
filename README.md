@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @Mrkhan154212
-- 👀 I’m interested in Cloud 
-- 🌱 I’m currently learning Google Cloud Facilitator Program 
-- 💞️ I’m looking to collaborate on Google Cloud 
+- 👋 Hi, I’m @MD MIRAN KHAN
+- 👀 Data Analyst/Buisness Analyst 
 - 📫 How to reach me: I am INDIAN 
 - 😄 Pronouns: Mr Khan 
 - ⚡ Fun fact: Smart Worker 😎
