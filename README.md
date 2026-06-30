@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MD MIRAN KHAN
-- 👀 Data Analyst/Buisness Analyst 
+- 👀 Founder & CEO Of Growlancer
 - 📫 How to reach me: I am INDIAN 
 - 😄 Pronouns: Mr Khan 
 - ⚡ Fun fact: Smart Worker 😎
